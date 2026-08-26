@@ -1,4 +1,4 @@
-## 5조Team Rules
+## 5조 Team Rules
 
 ### 코어 타임
 (시간대와 모이는 곳)
